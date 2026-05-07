@@ -22,7 +22,7 @@ Most of my projects live at the intersection of AI and business workflows. I am 
 ### Let's connect
 
 - 📧 sextonty10@gmail.com
-- 💼 [LinkedIn](https://www.linkedin.com/in/your-linkedin-url)
+- 💼 [LinkedIn][(https://www.linkedin.com/in/your-linkedin-url)](https://www.linkedin.com/in/tyler-sexton-3b61653a9?utm_source=share_via&utm_content=profile&utm_medium=member_ios)
 
 ---
 
